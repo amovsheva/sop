@@ -1,5 +1,9 @@
 Stanford University regards the diversity of its graduate student body as an important factor in serving the educational mission of the university. We encourage you to share unique, personally important, and/or challenging factors in your background, such as work and life experiences, special interests, culture, socioeconomic status, the quality of your early educational environment, gender, sexual orientation, race or ethnicity. Please discuss how such factors would contribute to the diversity of the entering class, and hence to the experience of your Stanford classmates. (700 words)
 
+
+Word Count: 797
+-
+
 ---
 
 
